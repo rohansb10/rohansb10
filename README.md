@@ -6,7 +6,7 @@
 💡 Optimized workflows resulting in **40% faster processing** & **$50K annual cost savings**<br>
 🏆 **Best Employee of the Year 2024–25** @ Coforge<br>
 📜 **AWS Certified Data Engineer – Associate**<br>
-📍 Nagpur, Maharashtra, India
+📍 Maharashtra, India
  
  
 ## 🌐 Socials:
